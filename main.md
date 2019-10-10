@@ -1,6 +1,6 @@
 10k December 1st
 
-Synthetic Text as Method for Literary Analysis
+On Method and the Reconstructed Text
 
 LA Sherman > Genetic Criticism > platform studies (yngve)
 
